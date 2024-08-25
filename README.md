@@ -6,8 +6,11 @@ enfp-t ✦ pansexual ![d1a9b073](https://github.com/user-attachments/assets/e5a1
 
 ![image](https://github.com/user-attachments/assets/6f16ad8a-2bc5-42cd-baf0-5575730321e6)
 
+![d5f589d9](https://github.com/user-attachments/assets/8fee66d0-ad54-489c-acc1-c0c5be511817) i like technology, robots, sweets, 
 
+and horror ![14956b5a](https://github.com/user-attachments/assets/8bb2cf10-dd4e-458e-aca6-616e992da970)
 
+![image](https://github.com/user-attachments/assets/6f16ad8a-2bc5-42cd-baf0-5575730321e6)
 
 
 
