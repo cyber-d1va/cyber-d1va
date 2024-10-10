@@ -1,5 +1,6 @@
-![12f22035-fe0e-4244-a4b9-fc35126b194b](https://github.com/user-attachments/assets/1d11c5e2-9dbd-42db-aef9-bf3d9f7a30ea)
-
+![alt text](https://y2k.neocities.org/stamps/starz.png) 
+![alt text](https://y2k.neocities.org/stamps/ohoh-oh%20good%20to%20see%20you%20again.png)
+![alt text](https://y2k.neocities.org/stamps/15.png)
 
 
 
